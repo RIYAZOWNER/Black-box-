@@ -1,4 +1,4 @@
-# ★彡 [ ↻ RIYAZXERO  ↺ ] 彡★
+# ★彡 [ ↻ SHADOWCHEATPROJECT CRACKED ↺ ] 彡★
 
 🔥 **Android Virtual Injector (Non-Root)** 🔥  
 An advanced injector to inject games and apps via Virtual Space without rooting your Android device.
@@ -33,7 +33,7 @@ An advanced injector to inject games and apps via Virtual Space without rooting 
 ## 🌟 Credits
 **Full Credit & Developer:**  
 ✨『 ↻ **RIYAZXERO ** ↺ 』✨  
-Creator of [NewBlackbox](https://github.com/RIYAZOWNER/Blackbox)
+Creator of [NewBlackbox](https://xnxx.com)
 
 ---
 
@@ -49,14 +49,14 @@ Not compatible with games/apps protected by advanced anti-cheat mechanisms.
 ---
 
 ## 📲 Connect & Support
-- 📢 **Telegram Channel:** [Join Here](https://t.me/RIYAZSRC)
-- 👤 **Telegram:** [Contact Me](https://t.me/RIYAZXERO)
-- 📩 **Email:** [RIYAZPAPA112@gmail.com](mailto:RIYAZPAPA112@gmail.com)
+- 📢 **Telegram Channel:** [Join Here](https://t.me/shadowcheatproject)
+- 👤 **Telegram:** [Contact Me](https://t.me/shadowcheatproject)
+- 📩 **Email:** [xnxx.com@gmail.com](mailto:xnxx.com@gmail.com)
 
 ---
 
 ## ❤️ Support Development
-Consider supporting me on [Patreon](https://www.patreon.com/c/Reveny).
+Consider supporting me on [Patreon](https://xnxx.com).
 
 ---
 
@@ -66,8 +66,8 @@ Licensed under [GPLv3](LICENSE).
 ---
 
 ## 🖼️ Preview
-![Preview](https://github.com/RIYAZOWNER/Android-Virtual-Inject/blob/main/preview.jpg)
+![Preview](https://xnxx.com)
 
 ---
 
-**✨彡 ↻ RIYAZXERO  ↺ 彡✨ © 2024**
+**✨彡 ↻ SHADOWCHEATPROJECT CRACKED ↺ 彡✨ © 2024**
